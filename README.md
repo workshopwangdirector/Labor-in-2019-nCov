@@ -389,6 +389,12 @@ http://www.caixin.com/2020-01-29/101509272.html
  
 物流
 
+2020-04-22
+
+关注 | 《卡车司机复工情况调查报告》（预印本）
+
+https://mp.weixin.qq.com/s/ypSPUvY-Kpcj-tUxG4pnKQ
+
 2020-02-16
 
 新民周刊  口述实录 | 为武汉各大医院配送物资，疫情结束前我不会“撤退”
@@ -474,6 +480,12 @@ https://mp.weixin.qq.com/s/GSmKFji5YCbXadOSCWGaBg
  
  
 出租车司机|志愿车队
+
+2020-04-27
+
+大暴发！40多名网约车队长联名上书滴滴，提出3大诉求！
+
+https://mp.weixin.qq.com/s/WCeTaczE7jsVOPzn7CgUSw
 
 2020-03-24
 
@@ -621,6 +633,12 @@ https://mp.weixin.qq.com/s/MgDbbq7u6hKGhYsE0zXrmw
  
  
 建筑工人|工程师
+
+2020-04-10
+
+我在街头盼日出——一群城市临工的复工路
+
+https://baijiahao.baidu.com/s?id=1663563480733596525&wfr=spider&for=pc 
 
 2020-03-26 
 
@@ -1226,8 +1244,61 @@ http://www.cb.com.cn/index/show/special/cv/cv13413893129/p/s.html
 
 https://mp.weixin.qq.com/s/f-mER12NzQPQBjVlXgpUYA    
 
+制造业
+
+2020-04-25
+
+【一周怪事】富士康裁掉大量临时工，海信采取“末位淘汰”制淘汰近1万人
+
+https://mp.weixin.qq.com/s/dN3qNfx-Am47LlOZmHPuoQ
+
+2020-04-22
+
+工厂倒闭、只拿底薪 珠三角普工在焦虑中寻找生路
+
+https://finance.sina.com.cn/chanjing/cyxw/2020-04-22/doc-iircuyvh9156186.shtml 
+
+互联网
+
+2020-03-29
+
+刚复工就失业，被裁掉的互联人都去哪儿了？
+
+https://tech.ifeng.com/c/7vCzWXJVc3r 
 
 其他
+
+2020-04-27
+
+减薪、失业、找不到工作……疫情中，该如何面对焦虑？
+
+https://new.qq.com/omn/20200427/20200427A0OJ8D00 
+
+2020-04-25
+
+074职场女性 | 【调查】疫情爆发，她们的工作怎样了？
+
+https://chinadigitaltimes.net/chinese/2020/04/074%e8%81%8c%e5%9c%ba%e5%a5%b3%e6%80%a7-%e3%80%90%e8%b0%83%e6%9f%a5%e3%80%91%e7%96%ab%e6%83%85%e7%88%86%e5%8f%91%ef%bc%8c%e5%a5%b9%e4%bb%ac%e7%9a%84%e5%b7%a5%e4%bd%9c%e6%80%8e%e6%a0%b7%e4%ba%86/
+
+
+2020-04-18
+
+女性劳动者应该平等受惠——以性别视角看疫情后的复工政策
+
+https://www.douban.com/note/759193941/
+
+2020-04-16
+
+疫情对就业影响几何？北大光华：薪水越低，越容易失业
+
+https://www.jiemian.com/article/4263196.html 
+
+2020-04-10
+
+疫论·劳动｜疫情冲击下的零工女性，与她们破碎的流动性
+
+https://mp.weixin.qq.com/s/lqCsGIQBqkC5mEW1j8fyHQ
+
 
 2020-03-08
 
